@@ -1,7 +1,7 @@
 # -
 德州私人局代码，俱乐部源码，poker代码,约局源码，AOF，短牌，SNG，MTT，德州牛仔，奥马哈，大菠萝等玩法，TG：@xuzongbin001  或E-MIAL:masterai918@gmail.com
 
-[我们的德州项目不是网上那种外包团队的德州产品：没有在市场上盈利过，中看不中用，服务器漏洞不少的德州产品]
+[我们的德州项目不是网上那种外包团队的德州产品：没有在市场上盈利过，中看不中用，服务器漏洞不少的德州产品，是真正在市场上盈利过，运营多年的德州]
 ![3联盟-加入主页](https://github.com/user-attachments/assets/205c0b50-5600-4ab4-a954-e361311a4b9a)
 ![3联盟-充值联盟币](https://github.com/user-attachments/assets/e0fc4fe0-61ca-480a-a099-dde20cf38f5a)
 ![03赛事4](https://github.com/user-attachments/assets/a755bbb1-70c0-4f3c-9c69-b89377dbbb59)
