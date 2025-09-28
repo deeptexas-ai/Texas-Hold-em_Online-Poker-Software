@@ -1,5 +1,5 @@
 金贝德州是线上成功运营的德州俱乐部产品。，是和HHpoke德扑圈，wpk直接竞争的产品
-德州私人局代码，俱乐部源码，poker代码,约局源码，AOF，短牌，SNG，MTT，德州牛仔，奥马哈，大菠萝等玩法，TG：@xuzongbin001  或E-MIAL:masterai918@gmail.com
+德州私人局代码，俱乐部源码，poker代码,约局源码，AOF，短牌，SNG，MTT，德州牛仔，奥马哈，大菠萝等玩法，TG：@xuzongbin001  或E-MIAL:masterai918@gmail.com；聊天软件Mchat:xuzongbin001
 
 德州撲克俱樂部，德州私人局，朋友局遊戲，德州撲克代碼，德州源碼，德州撲克遊戲，德州撲克遊戲源碼，產品精美代碼質量靠譜。裡面有 SNG、MTT、經典德州、大菠蘿、短牌等七八種德州玩法，聯盟，語音聊天；Telegram 聯繫：@xuzongbin001
 
